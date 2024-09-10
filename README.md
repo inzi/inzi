@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @inzi
-- 👀 I’m interested in space, golf, and unpugging
+- 👀 I’m interested in space, golf, and unplugging
 - 🌱 I’m currently learning.
 - 📫 How to reach me: you can find me here.
 
